@@ -1,0 +1,1 @@
+Wellness Hub is a comprehensive health center where you can explore solutions for physical and mental well-being. From yoga and nutrition to psychological counseling, Wellness Hub helps you achieve a balanced and healthy lifestyle. Start your journey to better health with us!
